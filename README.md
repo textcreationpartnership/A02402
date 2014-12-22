@@ -35,9 +35,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Most true and more admirable newes expressing the miraculous preseruation of a young maiden of the t
+
+1. ❧ To his eſpeciall freind, Maſter Ed. Harc. Merchant in London.
+
 #####Body#####
-Most true and more admirable newes expressing the miraculous preseruation of a young maiden of the t
+
+1. portrait of maiden
+
+1. portrait of John Honaver
+
 **Types of content**
 
   * There are 22 **verse** lines!
